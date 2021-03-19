@@ -1,3 +1,1 @@
-# Gatos são legais 
-# Cachorros são mais
-# Gatos tem emojs, cachorros não 
+Gatos são legais e GG 😸
