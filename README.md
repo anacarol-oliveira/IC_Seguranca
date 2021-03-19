@@ -1,1 +1,1 @@
-Gatos são legais e GG 😸
+Cachorros são top - by:Diogo :dog:
