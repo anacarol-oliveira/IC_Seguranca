@@ -1,1 +1,1 @@
-I love cats 😻, by Ana Carolina de Oliveira (2000).
+I love dogs :dog:, by Diogo Bissoli Moreno (2001).
