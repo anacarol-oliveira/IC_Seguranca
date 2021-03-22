@@ -1,1 +1,1 @@
-I love dogs :dog:, by Diogo Bissoli Moreno (2001).
+I love little cats 😽, by Diogo Bissoli Moreno (2001).
